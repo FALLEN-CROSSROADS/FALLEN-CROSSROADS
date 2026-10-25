@@ -5,7 +5,7 @@
   <p>. C+H and W2I always!! i love making friends and i’m talkative as hell :-} .</p>
   <p>𓉸</p>
   
-  <p>† . i do not have a DNI, i block freely !</p>
+  <p>† . i do not have a DNI; i block freely !</p>
   <p>† . ^ that being said, i try not to interact with people -15 if i can help it.</p>
   <p>† . feel free to approach me, but i don’t interact with the phighting fandom much and deliberately stay out of the way of discussing discourse.</p>
   <img src="IMG_7757.jpeg" alt="venomshank ditf">
