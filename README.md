@@ -1,8 +1,8 @@
 <div align="center">
   <h2>. ♱ RISE FROM THE GRAVE ♱ .</h2>
-  <p>KEKII . VEE</p>
-  <p>19 . any prns, <a href="https://en.pronouns.page/@kekii">it/she/he/neos</a> pref</p>
-  <p>C+H and W2I always!! i love making friends and i’m talkative as hell :-}</p>
+  <p>𖥔 KEKII . VEE 𖥔</p>
+  <p>+ 19 . any prns, <a href="https://en.pronouns.page/@kekii">it/she/he/neos</a> pref +</p>
+  <p>. C+H and W2I always!! i love making friends and i’m talkative as hell :-} .</p>
   <p>𓉸</p>
   
   <p>† . i do not have a DNI, i block freely !</p>
